@@ -3,7 +3,7 @@
 ### Magliette & More
 
 > **Maglietta Patagonia Verde Classica (L) 45€** ★★★★
->
+> 
 > https://www.zalando.it/patagonia-logo-tee-t-shirt-con-stampa-pine-green-pa942d01o-m14.html
 
 > **Maglia/Polo a manica lunga Carhartt (Beige/Nera) (M) 100€** ★★★★
@@ -47,7 +47,7 @@
 >
 > https://www.zalando.it/the-north-face-smanicato-tnf-black-th322t08l-q11.html
 
-> **Retro Pile Patagonia (L) 104€** ★★★★
+> **Retro Pile Smanicato Patagonia (L) 104€** ★★★★
 >
 > https://www.zalando.it/patagonia-smanicato-pitch-blue-w-endless-blue-pa922t014-k11.html
 
